@@ -1,5 +1,5 @@
 # 翻墙软件 - TOP翻墙工具推荐
-### PC/Mac/iPhone/Android使用的翻墙软件，国外科学上网工具。
+### PC/Mac/iPhone/Android使用的翻墙软件，国外科学上网工具
 ### ⇩⇩⇩ 是很多朋友花钱、买套餐，使用后的真实感受排名 ⇩⇩⇩
 
 # 1.Nord翻墙   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=excellent_tizi)

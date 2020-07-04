@@ -24,7 +24,7 @@
 # 4.Ivacy翻墙 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=best&data2=fanqiang)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# TODO 未来还会持续更新好用的翻墙工具
+# TODO 预计近期会持续更新好用的翻墙工具
 
 ----
 

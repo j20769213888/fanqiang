@@ -11,7 +11,16 @@
 
 优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
-# 2.Express翻墙 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=best&data1=fanqiang)
+# 2.Panda翻墙   [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
+✅ 号称「最适合中国的VPN翻墙软件」
+
+✅ 3天免费试用，体验网络的速度、稳定性
+
+✅ 近期有6个月套餐、1年套餐的特惠活动
+
+优势：无流量限制，ECC超强加密，7天无理由退款，在香港地区非常受欢迎
+
+# 3.Express翻墙 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=best&data1=fanqiang)
 ✅多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 优势：不限网速，160可选节点，3W个ip，24小时客服支持

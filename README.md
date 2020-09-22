@@ -11,14 +11,14 @@
 
 优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
-# 2.Panda翻墙   [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
-✅ 号称「最适合中国的VPN翻墙软件」
+# 2.Panda翻墙 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
+✅ 后起之秀，2019年的黑马，有中文团队，对中国地区的支持也比较好
 
-✅ 3天免费试用，体验网络的速度、稳定性
+✅ 3天免费试用，尽情体验网络的速度、稳定性，决定是否购买
 
 ✅ 近期有6个月套餐、1年套餐的特惠活动
 
-优势：无流量限制，ECC超强加密，7天无理由退款，在香港地区非常受欢迎
+优势：无流量限制，ECC超强加密，7天无理由退款，隐私保护极好，注册甚至不需要邮箱！
 
 # 3.Express翻墙 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=best&data1=fanqiang)
 ✅多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
@@ -33,7 +33,7 @@
 # 4.Ivacy翻墙 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=best&data2=fanqiang)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# TODO 预计近期会持续更新好用的翻墙工具
+# TODO 会持续更新好用的翻墙工具
 
 ----
 

@@ -41,6 +41,8 @@
 
 选翻墙软件最重要的就是 价格、网速、稳定性。我推荐的几个都是大品牌，也是朋友们最多买的工具，选一个不会错
 
+参考： [国内梯子](http://bestcnvpn.com/) [PC梯子](http://topcnvpn.com/) [电脑梯子](http://fastcnvpn.com/) [VPN梯子](http://top1vpn.top/)
+
 ----
 
 以下是免责声明：
